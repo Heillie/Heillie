@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Heillie
+- 👋 Hi, I’m Heillie
 - 🌱 I’m currently learning software programming
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: my favorite colors are baby purple, baby pink, and baby blue
